@@ -6,11 +6,10 @@
  [straw.p](https://tomatoitoes.straw.page/)ᅠ![image alt](https://github.com/tomokatomatoes/tomokatomatoes/blob/main/tumblr_c38fab1d0f309ca31b5c7c8cf4db11ea_c851ccb7_75.gif)ᅠ[en.prounouns](https://en.pronouns.page/@tom0ka.itoh)ᅠ![image alt](https://github.com/tomokatomatoes/tomokatomatoes/blob/main/tumblr_da0576dfef9daf94672eec7a6855ff93_6b8794f6_75.gif)ᅠ[guns.lol](https://guns.lol/tom0ka.itoh)
 
 ᅠ
-
 ᅠ
 
  <details>
-  <summary>ᅠ۶ৎᅠmy personalized dump of stuff ( wip ! )</summary>
+  <summary>ᅠ۶ৎᅠmy personalized dump of stuff + wip ! </summary>
 
   ᅠᅠ
   ᅠ
